@@ -32,7 +32,7 @@ Hi社是个仿[QQ部落](http://buluo.qq.com)的社交网站。
 
 由于某些原因，本人暂不接受捐助，但在第一可用版本发布后，会邀请人对论坛管理。
 
-电邮地址: [dffzmxj@qq.com](mailto:dffzmxj@qq.com)
+电邮地址: [dffzmxj@qq.com](mailto:1821628025@qq.com)
 
 QQ: 2477819731  微信号: DFFZMXJ
 
