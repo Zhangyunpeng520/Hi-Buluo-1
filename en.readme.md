@@ -31,6 +31,6 @@ Version | Date | Content
 
 Email Address: [1821628025@qq.com](mailto:1821628025@qq.com)
 
-QQ: 1821628025  WeChat ID: zhangyunpeng520
+QQ: 1821628025  WeChat ID: TTzhangyunpeng
 
 Official Forum: [Goddess Forum](http://thegoddessforum.com)
