@@ -29,8 +29,8 @@ Version | Date | Content
 
 > Because Hi Buluo cannot be used for now, so I use Flarum for the cumminity. QQ and WeChat allowed donate. (I've just wanted to earn some money.)
 
-Email Address: [dffzmxj@qq.com](mailto:dffzmxj@qq.com)
+Email Address: [1821628025@qq.com](mailto:1821628025@qq.com)
 
-QQ: 2477819731  WeChat ID: DFFZMXJ
+QQ: 1821628025  WeChat ID: zhangyunpeng520
 
-Official Forum: [Goddess Forum](http://forum.dffzmxj.tk)
+Official Forum: [Goddess Forum](http://thegoddessforum.com)
