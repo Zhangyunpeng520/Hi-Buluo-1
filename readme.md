@@ -36,4 +36,4 @@ Hi社是个仿[QQ部落](http://buluo.qq.com)的社交网站。
 
 QQ: 1821628025  微信号: zhangyunpeng520
 
-官方论坛:[Goddess Forum](https://goddessforum.com)
+官方论坛:[Goddess Forum](https://thegoddessforum.com)
